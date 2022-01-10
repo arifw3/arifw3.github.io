@@ -2,7 +2,7 @@
 
 
 
-[Dexter](https://www.dizibox.pro/dexter-new-blood-1-sezon-9-bolum-izle/2/)
+[Dexter 10](https://www.dizigom1.com/dexter-new-blood-1-sezon-10-bolum/)
 
 
 ## Slumdog
